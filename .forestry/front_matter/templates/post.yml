@@ -21,4 +21,5 @@ fields:
     maxSize: 64
   label: image
 pages:
+- src/posts/dasar-dasar-biologi.md
 - src/posts/kamus-basa-jawa-bahasa-indonesia.md
