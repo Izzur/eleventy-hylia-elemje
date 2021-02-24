@@ -21,6 +21,7 @@ fields:
     maxSize: 64
   label: image
 pages:
+- src/posts/bawa-ganongan.md
 - src/posts/dasar-dasar-biologi.md
 - src/posts/kamus-basa-jawa-bahasa-indonesia.md
 - src/posts/kumpulan-modul-akm-mata-pelajaran-biologi.md
