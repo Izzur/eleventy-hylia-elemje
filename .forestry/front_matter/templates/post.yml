@@ -22,6 +22,7 @@ fields:
   label: image
 pages:
 - src/posts/bawa-ganongan.md
+- src/posts/belajar-menulis-di-blog.md
 - src/posts/dasar-dasar-biologi.md
 - src/posts/kamus-basa-jawa-bahasa-indonesia.md
 - src/posts/kumpulan-modul-akm-mata-pelajaran-biologi.md
