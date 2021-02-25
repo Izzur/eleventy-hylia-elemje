@@ -2,7 +2,7 @@
 date: 2021-02-25
 title: Belajar menulis di blog
 tags: []
-image: ''
+image: "/images/technology-infographics-by-slidesgo.png"
 
 ---
 Mencurahkan bahasa tulis di blog sudah lazim dan banyak dilakukan orang untuk saat ini. Sayapun harus mulai belajar banyak untuk menulis di blog saya ini. Minat untuk memiliki blog dan melengkapi dengan tulisan bagi kebanyakan orang tidak pernah surut dari tahun ke tahun. Banyak alasan orang kenapa ingin memiliki blog (pribadi) mulai dari sekedar berbagi informasi, menuangkan ide-ide, curhat melalui tulisan, mencari teman bahkan hingga mencari nafkah.  
