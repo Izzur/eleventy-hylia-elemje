@@ -1,6 +1,6 @@
 ---
 date: 2020-12-18
-title: Dasar - Dasar Biologi
+title: Dasar-dasar Biologi
 tags:
 - ilmu pengetahuan alam
 - biologi
