@@ -1,6 +1,6 @@
 ---
 date: 2020-12-22
-title: Rangkuman Materi Biologi
+title: Kumpulan materi PPT Biologi SMA
 tags:
 - ppt
 - sma
