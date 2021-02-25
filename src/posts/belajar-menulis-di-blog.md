@@ -5,6 +5,7 @@ tags: []
 image: "/images/technology-infographics-by-slidesgo.png"
 
 ---
+![](/images/technology-infographics-by-slidesgo.png)  
 Mencurahkan bahasa tulis di blog sudah lazim dan banyak dilakukan orang untuk saat ini. Sayapun harus mulai belajar banyak untuk menulis di blog saya ini. Tentu masih banyak kekurangan dan kesalahan-kesalahan yang saya buat dalam proses belajar menulis ini. Minat untuk memiliki blog dan melengkapi dengan tulisan bagi kebanyakan orang tidak pernah surut dari tahun ke tahun. Banyak alasan orang kenapa ingin memiliki blog (pribadi) mulai dari sekedar berbagi informasi, menuangkan ide-ide, curhat melalui tulisan, mencari teman bahkan hingga mencari nafkah.
 
 Adalah Pramoedya Ananta Toer dengan bijak menulis _“Orang boleh pandai setinggi langit, tapi selama ia tidak menulis, dia akan hilang di dalam masyarakat dan dari sejarah. Menulis adalah bekerja untuk keabadian”_
