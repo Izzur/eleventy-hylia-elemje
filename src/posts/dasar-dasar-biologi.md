@@ -29,4 +29,4 @@ Ilmu biologi modern yang saat ini kita kenal saat ini pada dasarnya terbentuk da
 5. **Teori Energi**  
    Dasar teori ilmu biologi modern yang terakhir adalah teori energi. Teori energi merupakan salah satu teori yang memiliki peranan sangat besar terhadap perkembangan ilmu biologi modern. Menurut teori ini, keberlangsungan atau pun kehidupan setiap organisme selalu bergantung kepada masukan energi yang dilakukan secara terus menerus. Tanpa adanya pasokan energi yang memadai, suatu organisme tidak akan mampu bertahan hidup.
 
-Demikianlah sedikit tulisan mengenai pengertian biologi dan dasar-dasar ilmu biologi yang digunakan pada biologi modern. Semoga bermanfaat!
+Demikianlah sedikit tulisan mengenai pengertian biologi dan dasar-dasar ilmu biologi yang digunakan pada biologi modern. Semoga bermanfaat.
