@@ -1,6 +1,6 @@
 ---
 date: 2020-12-20
-title: Kumpulan Modul AKM Mata Pelajaran Biologi
+title: KumpulanmModul AKM (Asesmen Kompetensi Minimun) Mata Pelajaran Biologi
 tags:
 - sma
 - mata pelajaran
