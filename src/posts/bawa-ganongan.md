@@ -1,25 +1,19 @@
 ---
 date: 2020-12-21
-title: Bawa Ganongan
+title: Bawa kanggo ganongan
 tags:
 - jawa
 - ganongan
 image: ''
 
 ---
-Berikut contoh bawa pambuka untuk penampilan ganongan 
+Berikut contoh _bawa pambuka_ untuk penampilan ganongan
 
-> ..Kocap kacarita dhek nalikaning semana  
-> ono Kraton kang aran Bantar Angin ya kang kawentar bakal dadi Ponorogo.
+> .. Kocap kacarita dhek nalikaning semana  
+> ana kraton kang aran Bantar Angin ya kang kawentar bakal sinebut dadi Ponorogo.
 >
-> Ning kana ingkang jumeneng Ratu ya sang Prabu Kelana Sewandana  
-> kalawan Sang Patih Pujonggo Anom,....
+> Mula hing kana ingkang jumeneng Ratu ya sang Prabu Kelana Sewandana kalawan Sang Patih Pujangga Anom,....
 >
-> Wau to kang cinarita sang prabu nembe semedi muhung paring ing Jawata,  
-> murih bisa ngleksanani bebanane Sang Putri Songgo Langit.
+> Wau to ingkang cinarita, sang prabu nembe semedi muhung paringe Jawata, murih bisa ngleksanani bebanane Sang Putri Songgo Langit. Sawise Pujangga Anom yo Bujang Ganong banjur pinaringan **pecut saman-diman** lan **topeng kencana**.
 >
->   
-> Sawise Pujangga Anom yo Bujang Ganong banjur pinaringan pecut saman diman lan topeng kencana.
->
->   
-> Ing kana mula kapundhut dene prabu Kelana Sewandana mangkono toh ..ing pangangkah kanggo ngubah warnane krana gandeng kalah panguwasa kalawan prabu Kelana Sewandana mula nora bisa kasembadan tetep bujang ganong wujud GANONGAN ....
+> Ing kana mula banjur kapundhut dene Prabu Kelana Sewandana, Ing mangkono toh ..ing pangangkah kanggo ngubah warnane, krana gandeng kalah panguwasa kalawan Prabu Kelana Sewandana mula nora bisa kasembadan dadi tetep bujang ganong wujud GANONGAN ....
