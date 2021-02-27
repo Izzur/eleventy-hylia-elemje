@@ -32,9 +32,9 @@ Dengan berbagai cara akhirnya penulis bersama team manajemen sekolah menjadikan 
 
 Awalnya karena belum mempunyai pengalaman untuk bermedsos ria tentu dengan tertatih-tatih penulis memulai kegiatan ini. Hanya bermodalkan gawai android sederhana akhirnya penulis bersama manajemen sekolah harus memberanikan diri melakukan promosi sekolah melalui media sosial. Dengan berbagai cara untuk belajar akhirnya penulis mencoba terobosan-terobosan baru teknik berpromosi di media sosial ini. Kendala awal adalah ketrampilan menempatkan fotografi dan editing untuk mendukung kegiatan tersebut. Sehingga di awal pandemi tahun kemarin proses promosi mulai dari persiapan pra pengambilan gambar sampai editing final berjalan sangat lambat sekali. Dan hasil yang dicapaipun belum memuaskan semua pihak. Namun kondisi ini tidak melemahkan semangat kita untuk senantiasa berkreasi dan mencari cara-cara baru yang efektif dan efisien.
 
-Alhamdulillah, dengan segala daya dan upaya serta kerjasama semua komponen sekolah serta dukungan para pihak akhirnya promosi sekolah melalui media sosial ini dapat berjalan dan membawa hikmah kita untuk harus selalu belajar berkreasi menciptakan hal-hal baru yang selama ini belum sempat kita pikirkan. Ini dapat mengasah kemampuan kita untuk memanfaatkan gawai untuk menunjang program-program pendidikan lainnya. Bahkan sekarang dengan mudah kita dapat belajar mengikuti pelatihan secara online sehingga banyak hal baru yang kita dapatkan untuk diterapkan dalam promosi sekolah di masa pandemi ini.  
-  
-akun media sosial sekolah :
+Alhamdulillah, dengan segala daya dan upaya serta kerjasama semua komponen sekolah serta dukungan para pihak akhirnya promosi sekolah melalui media sosial ini dapat berjalan dan membawa hikmah kita untuk harus selalu belajar berkreasi menciptakan hal-hal baru yang selama ini belum sempat kita pikirkan. Ini dapat mengasah kemampuan kita untuk memanfaatkan gawai untuk menunjang program-program pendidikan lainnya. Bahkan sekarang dengan mudah kita dapat belajar mengikuti pelatihan secara online sehingga banyak hal baru yang kita dapatkan untuk diterapkan dalam promosi sekolah di masa pandemi ini.
+
+Penulis admin akun media sosial sekolah di bawah ini:
 
 1\. @sma.maarif.sukorejo
 
