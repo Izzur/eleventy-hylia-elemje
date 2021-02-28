@@ -4,7 +4,7 @@ title: Dasar-dasar biologi
 tags:
 - ilmu pengetahuan alam
 - biologi
-- dasar
+- dasar-dasar biologi
 image: "/images/flower-1.webp"
 
 ---
