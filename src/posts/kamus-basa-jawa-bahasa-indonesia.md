@@ -1,6 +1,6 @@
 ---
 date: 2020-12-17
-title: Kamus Basa Jawa - Bahasa Indonesia
+title: Kamus Basa Jawa-Bahasa Indonesia
 tags:
 - jawa
 - indonesia
