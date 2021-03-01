@@ -34,10 +34,10 @@ Awalnya karena belum mempunyai pengalaman untuk bermedsos ria tentu dengan terta
 
 Alhamdulillah, dengan segala daya dan upaya serta kerjasama semua komponen sekolah serta dukungan para pihak akhirnya promosi sekolah melalui media sosial ini dapat berjalan dan membawa hikmah kita untuk harus selalu belajar berkreasi menciptakan hal-hal baru yang selama ini belum sempat kita pikirkan. Ini dapat mengasah kemampuan kita untuk memanfaatkan gawai untuk menunjang program-program pendidikan lainnya. Bahkan sekarang dengan mudah kita dapat belajar mengikuti pelatihan secara online sehingga banyak hal baru yang kita dapatkan untuk diterapkan dalam promosi sekolah di masa pandemi ini.
 
-Penulis admin akun media sosial sekolah di bawah ini:
+Penulis adalah admin akun media sosial sekolah di bawah ini:
 
 1\. @sma.maarif.sukorejo
 
-2\. www.facebook.com/SMA-Maarif-Sukorejo-Pasuruan-288531304617444
+2\. www.facebook.com/smamaarifsukorejo
 
 3\. www.youtube.com(c)SMAMaarifSukorejoPasuruan
