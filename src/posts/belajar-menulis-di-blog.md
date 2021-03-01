@@ -6,8 +6,8 @@ image: "/images/technology-infographics-by-slidesgo.png"
 
 ---
 ![](/images/technology-infographics-by-slidesgo.png)  
-Mencurahkan bahasa tulis di blog sudah lazim dan banyak dilakukan orang saat sekarang ini. Sayapun harus mulai belajar banyak untuk menulis di blog saya ini. Tentu masih banyak kekurangan dan kesalahan-kesalahan yang saya buat dalam proses belajar menulis ini. Namun setidaknya saya harus belajar dari kesalahan dan kekurangan itu untuk memperbaiki kegiatan menulis ini.  
-  
+Mencurahkan ide, gagasan, pendapat dan suasana perasaan hati lewat bahasa tulis di blog sudah lazim dan banyak dilakukan orang saat sekarang ini. Sayapun harus mulai belajar banyak untuk menulis di blog saya ini. Tentu masih banyak kekurangan dan kesalahan-kesalahan yang saya buat dalam proses belajar menulis ini. Namun setidaknya saya harus belajar dari kesalahan dan kekurangan itu untuk memperbaiki kegiatan menulis ini.
+
 Minat untuk memiliki blog dan melengkapi dengan tulisan bagi kebanyakan orang tidak pernah surut dari tahun ke tahun. Banyak alasan orang kenapa ingin memiliki blog (pribadi) mulai dari sekedar berbagi informasi, menuangkan ide-ide, curhat melalui tulisan, mencari teman bahkan hingga mencari nafkah. Demikian pula saya, meskipun terasa terlambat tetapi '**_better late than never_**'. Saya harus lebih banyak belajar untuk meningkatkan kompetensi membaca dan menulis ini.
 
 Adalah Pramoedya Ananta Toer dengan bijak menulis _“Orang boleh pandai setinggi langit, tapi selama ia tidak menulis, dia akan hilang di dalam masyarakat dan dari sejarah. Menulis adalah bekerja untuk keabadian”_
