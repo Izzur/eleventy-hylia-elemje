@@ -1,6 +1,6 @@
 ---
 date: 2021-02-27
-title: BERKREASI DI MASA PANDEMI
+title: Berkreasi di masa pandemi
 tags:
 - pandemi
 - kreatif
