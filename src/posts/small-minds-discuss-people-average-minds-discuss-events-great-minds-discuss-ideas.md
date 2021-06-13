@@ -3,7 +3,7 @@ date: 2021-06-14
 title: Small Minds discuss people, Average Minds discuss events, Great Minds discuss
   ideas
 tags: []
-image: ''
+image: "/images/governor-to-be-3437022-5c6325dd46e0fb0001dcd724.jpg"
 
 ---
 ![](/images/governor-to-be-3437022-5c6325dd46e0fb0001dcd724.jpg)Mantan presiden USA Franklin Delano Roosevelt (FD Roosevelt), pernah mengatakan, **“Small Minds discuss people, Average Minds discuss events, Great Minds discuss ideas."** Dari pernyataan tersebut di atas ada 3 (tiga) poin yang dapat dibahas yaitu : small minds, average minds dan great minds. Terjemahan harfiahnya adalah pikiran sempit, membicarakan orang, pikiran rata-rata, membicarakan peristiwa, pikiran besar, membicarakan gagasan.  
