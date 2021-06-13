@@ -5,7 +5,7 @@ tags:
 - pandemi
 - kreatif
 - guru
-image: ''
+image: "/images/favicon.jpeg"
 
 ---
 Pendidikan dalam perspektif kebijakan didefinisikan sebagai usaha sadar dan terencana untuk mewujudkan suasana belajar dan proses pembelajaran agar peserta didik secara aktif mengembangkan potensi dirinya untuk memiliki kekuatan spiritual keagamaan, pengendalian diri, kepribadian, kecerdasan, akhlak mulia, serta keterampilan yang diperlukan dirinya, masyarakat, bangsa dan negara. (UU No. 20 Th 2003 tentang Sisdiknas)
