@@ -24,7 +24,7 @@ Orang yang berpikiran sempit senang menggunakan kata tanya “siapa”, orang ya
 
 Tidak ada satupun prestasi atau karya di dunia ini yang dihasilkan oleh pikiran sempit. Di samping itu, ketiga jenis pikiran ini juga mempunyai ‘makanan favorit' yg berbeda.
 
-Si pikiran sempit biasanya senang melahap "tabloid, infotaintment, _koran-koran merah_, berita-berita hoax.
+Si pikiran sempit biasanya senang melahap "tabloid, infotainmen, _koran-koran merah_, berita-berita hoax.
 
 Si pikiran rata-rata amat berselera dengan "koran berita"
 
