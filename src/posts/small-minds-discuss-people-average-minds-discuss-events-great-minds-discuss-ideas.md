@@ -20,7 +20,7 @@ Small Minds, “Siapa lagi sih yang demo? Kurang kerjaan aja, bikin jalanan jadi
 
 Pikiran mana yg lebih mendominasi kita, begitulah apa yg dihasilkannya. Kalau setiap saat otak kita dipenuhi oleh pikiran sempit, maka kita akan selalu asyik dengan urusan orang lain, namun tidak mnghasilkan apa-apa, kecuali perseteruan. Akan tetapi jika pikiran besar yang mendominasi, maka ia akan aktif menemukan terobosan baru dan gagasan baru.
 
-Orang yang berpikiran sempit senang menggunakan kata tanya “siapa”, orang yang berpikiran rata-rata senang menggunakan kata: “ada apa”, sedangkan, orang yang berpikiran besar selalu memanfaatkan kata tanya: “mengapa dan bagaimana”. Dan... dari pikiran yang terakhir itulah konon yang menginspirasi Sir Isaac Newton sehingga menemukan 'teori gravitasi-nya' yang sangat terkenal itu.
+Orang yang berpikiran sempit senang menggunakan kata tanya “siapa”, orang yang berpikiran rata-rata senang menggunakan kata: “ada apa”, sedangkan, orang yang berpikiran besar selalu memanfaatkan kata tanya: “mengapa dan bagaimana”. Dan ... dari pikiran yang terakhir itulah konon menginspirasi Sir Isaac Newton sehingga menemukan 'teori gravitasi-nya' yang sangat terkenal itu.
 
 Tidak ada satupun prestasi atau karya di dunia ini yang dihasilkan oleh pikiran sempit. Di samping itu, ketiga jenis pikiran ini juga mempunyai ‘makanan favorit' yg berbeda.
 
