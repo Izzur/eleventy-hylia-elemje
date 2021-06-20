@@ -16,4 +16,4 @@ Pembelajaran tatap muka secara terbatas wajib mengikuti peraturan Pemberlakuan P
 Salinan Keputusan Bersama Menteri tentang Panduan Penyelenggaraan Pembelajaran di Masa Pandemi _Coronavirus Disease 2019_ (COVID-19) dapat diunduh pada link berikut :
 
   
-https://drive.google.com/file/d/1x-5wFYXSG0M51_sk5xr_jTPXvgB5SQf0/view?usp=sharing
+[https://drive.google.com/file/d/1x-5wFYXSG0M51_sk5xr_jTPXvgB5SQf0/view?usp=sharing]()
