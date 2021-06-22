@@ -17,6 +17,6 @@ Pembelajaran tatap muka secara terbatas wajib mengikuti peraturan Pemberlakuan P
 Salinan Keputusan Bersama 4 Menteri tentang Panduan Penyelenggaraan Pembelajaran di Masa Pandemi _Coronavirus Disease 2019_ (COVID-19) dapat diunduh pada link di bawah ini :  
 [https://bit.ly/3zRzhf5](https://bit.ly/3zRzhf5 "Salinan Keputusan Bersama 4 Menteri")  
   
-Untuk bahan bacaan bersama berikut Buku Panduan Pembelajaran Tatap Muka (PTM) pada masa pandemi COVID-19 untuk tingkat SMA  
+Untuk bahan bacaan bersama berikut dapat diunduh Buku Panduan Pembelajaran Tatap Muka (PTM) pada masa pandemi COVID-19 untuk tingkat SMA pada link di bawah ini :  
   
 [https://bit.ly/35M6sCY](https://bit.ly/35M6sCY "Buku Panduan Pembelajaran Tatap Muka (PTM) tingkat SMA")
