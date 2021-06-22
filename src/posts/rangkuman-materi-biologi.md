@@ -1,6 +1,6 @@
 ---
 date: 2020-12-22
-title: Kumpulan materi PPT Biologi SMA
+title: Kumpulan materi power point ( format PPT) Biologi SMA
 tags:
 - ppt
 - sma
