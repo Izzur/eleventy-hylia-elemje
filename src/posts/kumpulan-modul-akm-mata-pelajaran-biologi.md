@@ -14,7 +14,7 @@ Merdeka belajar adalah kebijakan besar dalam rangka mewujudkan transformasi peng
 
 Asesmen Kompetensi Minimun atau disingkat AKM adalah penilaian kompetensi dasar yang dibutuhkan murid untuk dapat belajar, apapun materinya dan apapun mata pelajarannya. Sehingga materi AKM yang dinilai mencakup dua hal yaitu terkait literasi atau baca tulis, serta literasi numerasi.
 
-Mendasarkan pada kebutuhan di atas berikut sayas unggah materi modul Asesmen Kompetensi Minimun (AKM) mata pelajaran BIOLOGI untuk kelas X, kelas XI dan kelas XII.
+Mendasarkan pada kebutuhan di atas berikut saya unggah materi modul Asesmen Kompetensi Minimun (AKM) mata pelajaran BIOLOGI untuk kelas X, kelas XI dan kelas XII.
 
 * [Link unduh modul Asesmen Kompetensi Minimun (AKM) Biologi Kelas X](https://drive.google.com/drive/folders/1U1wODhCPonZjOcrjnAkD2gRUHmFzzCIe?usp=sharing)
 * [Link unduh modul Asesmen Kompetensi Minimun (AKM) Biologi Kelas XI](https://drive.google.com/drive/folders/18xYn3H9MXF1OuLKQrqgA2JgxUYGfkuhC?usp=sharing)
