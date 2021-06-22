@@ -1,6 +1,6 @@
 ---
 date: 2021-06-20
-title: Pembelajaran Tatap Muka Terbatas
+title: Pembelajaran tatap muka terbatas 2021
 tags:
 - skb 4 menteri 2021
 - pandemi
