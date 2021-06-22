@@ -15,4 +15,8 @@ Pembelajaran tatap muka secara terbatas dilakukan dengan prasyarat protokol kese
 Pembelajaran tatap muka secara terbatas wajib mengikuti peraturan Pemberlakuan Pembatasan Kegiatan Masyarakat (PPKM) mikro di daerah masing-masing. Terkait dengan PPKM mikro ini pembelajaran tatap muka terbatas tidak dapat digelar di kelurahan atau desa yang menerapkan aturan pembatasan tersebut. Aturan pembatasan juga sudah tertuang dalam Surat Keputusan Bersama (SKB) 4 Menteri yang ditandatangani pada akhir Maret. Pembelajaran tatap muka terbatas di suatu daerah harus ditiadakan apabila daerah tersebut memiliki tingkat penyebaran Covid-19 yang tinggi atau zona merah.
 
 Salinan Keputusan Bersama 4 Menteri tentang Panduan Penyelenggaraan Pembelajaran di Masa Pandemi _Coronavirus Disease 2019_ (COVID-19) dapat diunduh pada link di bawah ini :  
-[https://bit.ly/3zRzhf5](https://bit.ly/3zRzhf5 "Salinan Keputusan Bersama 4 Menteri")
+[https://bit.ly/3zRzhf5](https://bit.ly/3zRzhf5 "Salinan Keputusan Bersama 4 Menteri")  
+  
+Untuk bahan bacaan bersama berikut Buku Panduan Pembelajaran Tatap Muka (PTM) pada masa pandemi COVID-19 untuk tingkat SMA  
+  
+[https://bit.ly/35M6sCY](https://bit.ly/35M6sCY "Buku Panduan Pembelajaran Tatap Muka (PTM) tingkat SMA")
