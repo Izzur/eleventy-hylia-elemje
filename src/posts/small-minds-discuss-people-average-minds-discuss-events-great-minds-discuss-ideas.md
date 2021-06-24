@@ -1,19 +1,19 @@
 ---
 date: 2021-06-14
-title: Small Minds discuss people, Average Minds discuss events, Great Minds discuss
+title: Small minds discuss people, average minds discuss events, great minds discuss
   ideas
 tags: []
 image: "/images/governor-to-be-3437022-5c6325dd46e0fb0001dcd724.jpg"
 
 ---
-![](/images/governor-to-be-3437022-5c6325dd46e0fb0001dcd724.jpg)Mantan presiden Amerika Serikat Franklin Delano Roosevelt (FD Roosevelt), pernah mengatakan, **“Small Minds discuss people, Average Minds discuss events, Great Minds discuss ideas."** Terjemahan harfiahnya adalah pikiran sempit, membicarakan orang, pikiran rata-rata membicarakan peristiwa, pikiran besar membicarakan gagasan.  
-Dari pernyataan tersebut di atas ada 3 (tiga) poin yang dapat dibahas yaitu : **small minds, average minds dan great minds**.   
+![](/images/governor-to-be-3437022-5c6325dd46e0fb0001dcd724.jpg)Mantan presiden Amerika Serikat Franklin Delano Roosevelt (FD Roosevelt), pernah mengatakan, **“small minds discuss people, average minds discuss events, great minds discuss ideas."** Terjemahan harfiahnya adalah pikiran sempit, membicarakan orang, pikiran rata-rata membicarakan peristiwa, pikiran besar membicarakan gagasan.  
+Dari pernyataan tersebut di atas ada 3 (tiga) poin yang dapat dibahas yaitu : **small minds, average minds dan great minds**.  
 Small minds identik dengan pikiran sempit, average minds identik dengan pikiran rata-rata sedangkan great minds dapat dimaknai sebagai pikiran besar. Ketiga jenis pikiran ini ada di dalam setiap otak pikiran semua manusia. Tinggal pada bagian mana yang lebih mendominasi, maka dari situlah kesimpulan besarnya dihasilkan. Apa hasil dari dominasi masing-masing tipe otak manusia ini? Mari kita  berikan bahasan singkat  dengan urutan yang agak berbeda, yaitu _small minds_, _great minds_ dan terakhir baru _average minds_, agar lebih mudah melihat perbandingannya.
 
 Jika otak seseorang didominasi oleh small minds, maka ia akan selalu asyik dengan urusan orang lain, sibuk menilai sesuatu di luar dirinya, namun tidak menghasilkan apa-apa kecuali perseteruan. Suka melihat orang lain dari sisi negatif dan lupa menilai dirinya sendiri. Tipe small minds ini bisa dibilang tipe manusia yang senang menghasilkan **gosip**.  
 Karena itulah kata kunci yang paling ia senangi adalah : **siapa?**
 
-Tetapi jika _great minds_ yang lebih mendominasi otak seseorang, maka ia akan aktif menemukan terobosan hal baru, jalan keluar dan berbagai ide kreatif-inovatif lainnya. Cara berpikir tipe great minds ini bisa disebut sangat jauh ke depan dan bertolak belakang dengan tipe small minds. Cara berpikirnya positif dan tidak suka melibatkan diri dalam hal-hal yang tidak bermanfaat. Tipe ini bisa disebut tipe manusia yang menghasilkan **solusi.** Kata kunci yang disenanginya adalah: **mengapa dan bagaimana?** 
+Tetapi jika _great minds_ yang lebih mendominasi otak seseorang, maka ia akan aktif menemukan terobosan hal baru, jalan keluar dan berbagai ide kreatif-inovatif lainnya. Cara berpikir tipe great minds ini bisa disebut sangat jauh ke depan dan bertolak belakang dengan tipe small minds. Cara berpikirnya positif dan tidak suka melibatkan diri dalam hal-hal yang tidak bermanfaat. Tipe ini bisa disebut tipe manusia yang menghasilkan **solusi.** Kata kunci yang disenanginya adalah: **mengapa dan bagaimana?**
 
 Kemudian jika otak seseorang lebih didominasi oleh _average minds_, maka ia akan cenderung bereaksi setelah ada pancingan. Tidak suka menggosipkan pribadi orang lain namun juga tidak terlalu kreatif untuk mencari solusi. Ia cenderung melihat apa yang terpampang di hadapannya tanpa keinginan mencari celah untuk menjelekkannya, namun tak sampai berpikir bagaimana kelanjutan dari paparan tersebut. Tipe yang pertengahan begini akan menghasilkan **pengetahuan.** Kata kunci yang disenangi tipe ini adalah: **Ada apa?**
 
